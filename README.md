@@ -1,1 +1,0 @@
-# Removedor-de-Fundos
